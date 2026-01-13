@@ -1,0 +1,1 @@
+# oplata_kriptoi_po_QR_ili_SBP
